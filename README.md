@@ -1,4 +1,9 @@
-<img width="540" height="1200" alt="WhatsApp Image 2026-09-16 at 12 10 25" src="https://github.com/user-attachments/assets/0e8b2465-ef92-409b-8714-de3e50e9f7a8" />
+<img width="540" height="1200" alt="WhatsApp Image 2026-09-16 at 12 10 28" src="https://github.com/user-attachments/assets/5c4dc1d6-1606-4ae6-aa82-52b2e5c76b56" />
+<img width="540" height="1200" alt="WhatsApp Image 2026-09-16 at 12 11 03" src="https://github.com/user-attachments/assets/c387ee2e-8bd1-45e8-b0ec-ab18b31ba324" />
+
+<img width="540" height="1200" alt="WhatsApp Image 2026-09-16 at 12 10 25" src="https://github.com/user-attachments/assets/5c766eea-8c90-4428-8d88-6cdfe3bcb997" />
+<img width="540" height="1200" alt="WhatsApp Image 2026-09-16 at 12 11 06" src="https://github.com/user-attachments/assets/b52105e2-a3d5-402e-91bf-7d2b71ba81b3" />
+
 
 Doctor Channeling App
 
